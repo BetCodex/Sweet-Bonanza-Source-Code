@@ -6,7 +6,4 @@
 Cracked Source Code Files of Sweet Bonanza & Xmas game.
 <br>
 <br>
-<b>Video:</b> https://youtu.be/LaK1zndzUHg
-<br>
-<br>
-<b>Link:</b> https://betcodex.com/item/sweet-bonanza
+<b>Video:</b> https://youtu.be/bmMWT8_szS4
